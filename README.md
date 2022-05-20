@@ -10,4 +10,4 @@ Warm Regards,
 
 Ja-Naé
 
-# [DAO Board - with Tutorial-2022-CURRENT.pdf](https://github.com/ja-nae/DAOBoard/files/8209012/DAO.Board.-.with.Tutorial-2022-CURRENT.pdf)
+# [DAO Board - with Tutorial-2022-CURRENT.pdf](https://www.dropbox.com/s/kyuc8yo6780lpr5/DAO%20Innovation%20Board%20-%20with%20Tutorial%20and%20CC-2022-CURRENT.pdf?dl=0)
